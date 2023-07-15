@@ -34,7 +34,12 @@ This product is Informed Sport Certified, Non-GMO Project Verified, and Made Tra
 
 
 
+When purchasing supplements, its important to check the product labels for information on third-party testing. 
+ Look for certifications such as IFOS (International Fish Oil Standards) or USP (United States Pharmacopeia) Verified,
+as these indicate that the product has been tested for purity, potency, and quality.
 
+Its always a good idea to read product reviews, consult with a healthcare professional,
+and choose reputable brands to ensure that you are getting a fish oil supplement that meets your quality and purity requirements.
 
 
 
