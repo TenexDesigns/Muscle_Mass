@@ -1,5 +1,14 @@
  Best Creatine supplements that are third-party tested for purity and quality
 
+Creatine: This is a substance found naturally in muscle cells and helps produce energy during high-intensity exercise.
+It can lead to significant increases in muscle mass, strength, and exercise performance. However, it can cause digestive problems when taken in high doses. 
+There are many creatine supplements in the market, but its best to choose one that is third-party tested for purity and quality.
+
+
+
+
+
+
 
 There are several Creatine supplements available in the market that are third-party tested for purity and quality. Here are some of them:
 
