@@ -8,6 +8,12 @@ The top beta-alanine supplements can be found in this fitnessvolt.com.
 
 Here are some of the best Beta-Alanine supplements that are third-party tested for purity and quality:
 
+1.NOW Sports: NOW Sports is a reputable brand that offers a range of sports nutrition supplements, including beta-alanine. While they may not have specific third-party testing for their beta-alanine products, NOW Sports maintains high-quality manufacturing standards and adheres to Good Manufacturing Practices (GMP) to ensure product quality and purity.
+
+2.BulkSupplements: BulkSupplements is a brand known for providing pure and high-quality supplement ingredients. While they do not conduct specific third-party testing on individual products, they have an in-house testing lab and quality control processes to maintain product integrity.
+
+3.Nutricost: Nutricost is a brand that emphasizes transparency and quality in their products. While specific third-party testing for beta-alanine may not be available, Nutricost uses third-party testing for other products in their lineup, demonstrating their commitment to quality and purity.
+
 1.PrimaForce Beta-Alanine: 
 If you prefer supplements that have been third-party tested, this is a good choice.
 It is manufactured in a GMP-compliant facility, ensuring the quality of the ingredients used.
